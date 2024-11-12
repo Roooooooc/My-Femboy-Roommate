@@ -4,6 +4,9 @@ Welcome to **My Femboy Roommate**, a unique and immersive visual novel game deve
 
 ## [Play My Femboy Roommate Online](https://myfemboy-roommate.com)
 
+## [Download My Femboy Roommate APK & PC](https://myfemboy-roommate.com/my-femboy-roommate-download/)
+
+
 ---
 
 ## Table of Contents
